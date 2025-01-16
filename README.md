@@ -10,6 +10,3 @@
 ![Screenshot (485)](https://github.com/Ukashashere/Portfolio_Ukasha_Ahmad/assets/116743795/c8bbe842-159c-41c2-abeb-09050779de7b)
 
 
-
-
-
